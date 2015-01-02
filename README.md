@@ -61,4 +61,5 @@ http://oyster.ignimgs.com/wordpress/stg.ign.com/2014/12/daily_gifdump_705_29.gif
 This is dog:
 http://oyster.ignimgs.com/wordpress/stg.ign.com/2014/12/642.gif
 
+Disapproving Pierce:
 https://static.squarespace.com/static/522a2049e4b0a0ce717e990c/t/54a45dffe4b040ef97d229cd/1420058119149/?format=500w
