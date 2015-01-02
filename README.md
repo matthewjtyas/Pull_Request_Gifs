@@ -37,8 +37,6 @@ http://static.giantbomb.com/uploads/original/18/184483/2539433-2642583531-24674.
 Drew:
 http://31.media.tumblr.com/b633835fc726c328d0cdef811d5ebe64/tumblr_n8z4t74o8W1s07ds4o1_500.gif
 
-http://observationdeck.io9.com/christmas-caroling-with-batgirl-supergirl-1672247402/+charliejane
-
 Shark on Steroids:
 http://i.imgur.com/VPeH2.gif
 
