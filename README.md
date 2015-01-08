@@ -73,3 +73,6 @@ http://tclhost.com/Zn1Ky67.gif
 
 Penguin Tumbler:
 http://i.imgur.com/qlBYFuD.gif
+
+Finger Lickin' Good:
+http://media.giphy.com/media/acmkSckTVx15u/giphy.gif
