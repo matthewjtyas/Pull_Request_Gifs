@@ -79,3 +79,6 @@ http://media.giphy.com/media/acmkSckTVx15u/giphy.gif
 
 Endless Life:
 http://i.imgur.com/IrVV5p4.gif
+
+Clap:
+http://media.giphy.com/media/7rj2ZgttvgomY/giphy.gif
