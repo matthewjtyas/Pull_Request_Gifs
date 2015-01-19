@@ -85,3 +85,6 @@ http://media.giphy.com/media/7rj2ZgttvgomY/giphy.gif
 
 Crater:
 http://31.media.tumblr.com/1657229cf92a697a3441527f68eca3ee/tumblr_n9t47419ID1qh59n0o8_500.gif
+
+Khan:
+http://i.imgur.com/wgmBjeO.jpg
