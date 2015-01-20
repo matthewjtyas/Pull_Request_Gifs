@@ -88,3 +88,6 @@ http://31.media.tumblr.com/1657229cf92a697a3441527f68eca3ee/tumblr_n9t47419ID1qh
 
 Khan:
 http://i.imgur.com/wgmBjeO.jpg
+
+Cage Splosion:
+http://funnygifs.co/gifs/201409/nicholas-cage-head-in-space.gif
