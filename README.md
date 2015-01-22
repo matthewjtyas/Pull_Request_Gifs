@@ -94,3 +94,6 @@ http://funnygifs.co/gifs/201409/nicholas-cage-head-in-space.gif
 
 Z-Snap:
 http://picpost.postjung.com/data/208/208627-50a5d3a4a8c1e.gif
+
+Bollywood PUNCH:
+https://heavyeditorial.files.wordpress.com/2013/02/badassgifs7.gif?w=780
