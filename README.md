@@ -97,3 +97,6 @@ http://picpost.postjung.com/data/208/208627-50a5d3a4a8c1e.gif
 
 Bollywood PUNCH:
 https://heavyeditorial.files.wordpress.com/2013/02/badassgifs7.gif?w=780
+
+Sad Raven:
+http://stream1.gifsoup.com/view/571304/raven-sit-o.gif
