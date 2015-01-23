@@ -100,3 +100,6 @@ https://heavyeditorial.files.wordpress.com/2013/02/badassgifs7.gif?w=780
 
 Sad Raven:
 http://stream1.gifsoup.com/view/571304/raven-sit-o.gif
+
+Wheely Jesse:
+https://camo.githubusercontent.com/d7c9cd593194b47d6881283813fb18938fdf4518/687474703a2f2f74636c686f73742e636f6d2f6b796e516377642e676966
