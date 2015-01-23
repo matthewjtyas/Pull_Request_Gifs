@@ -103,3 +103,6 @@ http://stream1.gifsoup.com/view/571304/raven-sit-o.gif
 
 Wheely Jesse:
 https://camo.githubusercontent.com/d7c9cd593194b47d6881283813fb18938fdf4518/687474703a2f2f74636c686f73742e636f6d2f6b796e516377642e676966
+
+Mass Effect Pit:
+http://i.kinja-img.com/gawker-media/image/upload/s--nASCYQz7--/c_fit,fl_progressive,q_80,w_636/kfnknb2df50xeirz3bko.gif
