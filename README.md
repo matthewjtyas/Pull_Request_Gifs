@@ -106,3 +106,6 @@ https://camo.githubusercontent.com/d7c9cd593194b47d6881283813fb18938fdf4518/6874
 
 Mass Effect Pit:
 http://i.kinja-img.com/gawker-media/image/upload/s--nASCYQz7--/c_fit,fl_progressive,q_80,w_636/kfnknb2df50xeirz3bko.gif
+
+I Claim This:
+http://i.kinja-img.com/gawker-media/image/upload/s--1f9Hjvb2--/c_fit,fl_progressive,q_80,w_320/fui2yxl2yinuefwcnaal.gif
