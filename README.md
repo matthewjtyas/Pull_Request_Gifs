@@ -109,3 +109,6 @@ http://i.kinja-img.com/gawker-media/image/upload/s--nASCYQz7--/c_fit,fl_progress
 
 I Claim This:
 http://i.kinja-img.com/gawker-media/image/upload/s--1f9Hjvb2--/c_fit,fl_progressive,q_80,w_320/fui2yxl2yinuefwcnaal.gif
+
+Who's World:
+http://i.kinja-img.com/gawker-media/image/upload/s--LHzgmtAR--/c_fit,fl_progressive,q_80,w_320/cqifpuw0ybhnangaympp.gif
