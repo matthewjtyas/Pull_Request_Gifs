@@ -118,3 +118,6 @@ http://i.kinja-img.com/gawker-media/image/upload/s--Cjaempfy--/c_fit,fl_progress
 
 Trust:
 http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/01/tumblr_m3ggjmXGbn1qe7mxjo1_500.gif
+
+Breathing:
+http://i.imgur.com/K2LS5CJ.jpg
