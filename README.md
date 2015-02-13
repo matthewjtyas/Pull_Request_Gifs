@@ -124,3 +124,6 @@ http://i.imgur.com/K2LS5CJ.jpg
 
 Uh-oh:
 http://www.kotaku.co.uk/media/images/_error.gif
+
+Weekend:
+http://i.minus.com/ibw1hWIBi7cDdf.gif
