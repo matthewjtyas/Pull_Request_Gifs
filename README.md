@@ -136,3 +136,6 @@ http://funpings.com/wp-content/uploads/2014/01/When-Im-Late-1.gif
 
 Spinning Around:
 http://share.gifyoutube.com/yNkPlp.gif
+
+Release the Kraken:
+http://vignette2.wikia.nocookie.net/creepypastabrasil/images/c/c5/Release-the-kraken.gif/revision/latest?cb=20141015143559&path-prefix=pt-br
