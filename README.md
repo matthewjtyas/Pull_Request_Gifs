@@ -139,3 +139,6 @@ http://share.gifyoutube.com/yNkPlp.gif
 
 Release the Kraken:
 http://vignette2.wikia.nocookie.net/creepypastabrasil/images/c/c5/Release-the-kraken.gif/revision/latest?cb=20141015143559&path-prefix=pt-br
+
+Enough of this world:
+http://abload.de/img/cave-jump2zpvxhluyq.gif
