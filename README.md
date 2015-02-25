@@ -148,3 +148,6 @@ http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/02/tumblr_my0jdjcMpK1r2i45r
 
 Boop:
 http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/02/tumblr_nk5k90MPoh1r93b1wo1_400.gif
+
+Backing Away Now:
+http://media.giphy.com/media/5xtDarmF6eejuPalu3S/giphy.gif
