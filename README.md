@@ -142,3 +142,9 @@ http://vignette2.wikia.nocookie.net/creepypastabrasil/images/c/c5/Release-the-kr
 
 Enough of this world:
 http://abload.de/img/cave-jump2zpvxhluyq.gif
+
+Snow Dog:
+http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/02/tumblr_my0jdjcMpK1r2i45ro1_400.gif
+
+Boop:
+http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/02/tumblr_nk5k90MPoh1r93b1wo1_400.gif
