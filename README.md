@@ -154,3 +154,6 @@ http://media.giphy.com/media/5xtDarmF6eejuPalu3S/giphy.gif
 
 Buh Buh But:
 http://i.kinja-img.com/gawker-media/image/upload/s--Imuv_cWV--/c_fit,fl_progressive,q_80,w_320/vcul5olklcd3sctlicmi.gif
+
+Are you ready?:
+http://24.media.tumblr.com/tumblr_m1gq4g0fMt1rs3i2ko1_500.gif
