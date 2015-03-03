@@ -160,3 +160,6 @@ http://24.media.tumblr.com/tumblr_m1gq4g0fMt1rs3i2ko1_500.gif
 
 Stop it!
 http://fc02.deviantart.net/fs71/f/2013/028/6/c/stop_fighting_gif_by_tumblrgifs-d5t47qs.gif
+
+Coin Punch!
+http://i.kinja-img.com/gawker-media/image/upload/s--jQMfeklh--/qwcpgj350e8mkbs9pgjj.gif
