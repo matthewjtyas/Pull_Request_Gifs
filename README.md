@@ -163,3 +163,6 @@ http://fc02.deviantart.net/fs71/f/2013/028/6/c/stop_fighting_gif_by_tumblrgifs-d
 
 Coin Punch!
 http://i.kinja-img.com/gawker-media/image/upload/s--jQMfeklh--/qwcpgj350e8mkbs9pgjj.gif
+
+Hype Explosion
+http://i.imgur.com/kBteasv.gif
