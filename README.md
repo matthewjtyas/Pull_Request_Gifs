@@ -164,5 +164,14 @@ http://fc02.deviantart.net/fs71/f/2013/028/6/c/stop_fighting_gif_by_tumblrgifs-d
 Coin Punch!
 http://i.kinja-img.com/gawker-media/image/upload/s--jQMfeklh--/qwcpgj350e8mkbs9pgjj.gif
 
-Hype Explosion
+Hype Explosion:
 http://i.imgur.com/kBteasv.gif
+
+Catslip:
+http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/tumblr_nkz470lRwf1s7fwo7o1_400.gif
+
+I cat fly:
+http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/tumblr_nko15eTLos1tjfrxvo1_500.gif
+
+Too fly for a snowy owl:
+http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/tumblr_nkqp1sQ3Pf1t0gs1do1_400.gif
