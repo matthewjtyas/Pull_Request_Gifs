@@ -175,3 +175,6 @@ http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/tumblr_nko15eTLos1tjfrxv
 
 Too fly for a snowy owl:
 http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/tumblr_nkqp1sQ3Pf1t0gs1do1_400.gif
+
+Cereal Murderer:
+http://www.reactiongifs.us/wp-content/uploads/2013/07/homer_cereal_fail.gif
