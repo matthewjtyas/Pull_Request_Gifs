@@ -178,3 +178,6 @@ http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/tumblr_nkqp1sQ3Pf1t0gs1d
 
 Cereal Murderer:
 http://www.reactiongifs.us/wp-content/uploads/2013/07/homer_cereal_fail.gif
+
+HAHAHAHAHAHAHA:
+http://media.giphy.com/media/jQmVFypWInKCc/giphy.gif
