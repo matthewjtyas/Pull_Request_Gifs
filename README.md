@@ -181,3 +181,9 @@ http://www.reactiongifs.us/wp-content/uploads/2013/07/homer_cereal_fail.gif
 
 HAHAHAHAHAHAHA:
 http://media.giphy.com/media/jQmVFypWInKCc/giphy.gif
+
+Packed:
+http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/tumblr_nkoov9qZYf1rnma1do1_400.gif
+
+Ghost:
+http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/dopeness-pure-genius-4.jpg
