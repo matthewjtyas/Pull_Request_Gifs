@@ -187,3 +187,6 @@ http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/tumblr_nkoov9qZYf1rnma1d
 
 Ghost:
 http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/dopeness-pure-genius-4.jpg
+
+Kick to the Face:
+http://i.imgur.com/GTfUHgH.gif
