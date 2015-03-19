@@ -190,3 +190,6 @@ http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/03/dopeness-pure-genius-4.j
 
 Kick to the Face:
 http://i.imgur.com/GTfUHgH.gif
+
+Snow Joke:
+http://media-cache-ec0.pinimg.com/736x/c4/b7/02/c4b702611f0047a42d9f3fa77c94eef8.jpg
