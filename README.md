@@ -193,3 +193,12 @@ http://i.imgur.com/GTfUHgH.gif
 
 Snow Joke:
 http://media-cache-ec0.pinimg.com/736x/c4/b7/02/c4b702611f0047a42d9f3fa77c94eef8.jpg
+
+Terror:
+http://tclhost.com/yb64vKd.gif
+
+Nope:
+http://tclhost.com/Te418O8.gif
+
+PHP Error:
+http://tclhost.com/y9BGZ4m.gif
