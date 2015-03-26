@@ -205,3 +205,6 @@ http://tclhost.com/y9BGZ4m.gif
 
 "But a sexy cow" - pedro:
 https://cloud.githubusercontent.com/assets/3158640/6802577/ab95e31c-d229-11e4-8ec7-7b77dcacbd21.gif
+
+Tight Tight TIGHT:
+https://38.media.tumblr.com/2d7e8484ef0ca820dcfaebaa22527783/tumblr_mzglmpnLJH1totw26o1_400.gif
