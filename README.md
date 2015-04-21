@@ -208,3 +208,6 @@ https://cloud.githubusercontent.com/assets/3158640/6802577/ab95e31c-d229-11e4-8e
 
 Tight Tight TIGHT:
 https://38.media.tumblr.com/2d7e8484ef0ca820dcfaebaa22527783/tumblr_mzglmpnLJH1totw26o1_400.gif
+
+Mets Dog:
+http://assets.sbnation.com/assets/3100285/pipedoggraps.gif
