@@ -223,3 +223,6 @@ http://i.kinja-img.com/gawker-media/image/upload/s--qpjufAVc--/juijwk7jwfkge0pbp
 
 Some days you just can't
 http://i.kinja-img.com/gawker-media/image/upload/s--5EjphwAP--/c_fit,fl_progressive,q_80,w_320/1222863152285048643.gif
+
+Sylvester:
+https://camo.githubusercontent.com/13ed96e1505db39590b46c71e78d8411f3c6e43d/687474703a2f2f6d656469612e67697068792e636f6d2f6d656469612f79665958664975467a3038684f2f67697068792e676966
