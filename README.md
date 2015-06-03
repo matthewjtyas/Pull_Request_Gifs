@@ -232,3 +232,6 @@ https://camo.githubusercontent.com/59b0f39ad89eedeaab92d36cc7f9ff1fcb75511b/6874
 
 HAHAHHAHAHAHA:
 http://i.kinja-img.com/gawker-media/image/upload/s--OXsXOV6f--/1274123496241159014.gif
+
+Cage Happy:
+http://i.imgur.com/eYBlyNq.gif
