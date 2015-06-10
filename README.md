@@ -240,3 +240,6 @@ Cat Hug:
 http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/06/tumblr_npbbyj1Ga61tgetb4o1_400.gif
 
 http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/06/tumblr_n7qt5lxl1C1tex68jo1_500.png
+
+Hacker Man:
+http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/06/tumblr_np4fa6pJe81rli7h8o1_500.gif
