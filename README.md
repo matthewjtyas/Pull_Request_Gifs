@@ -235,3 +235,6 @@ http://i.kinja-img.com/gawker-media/image/upload/s--OXsXOV6f--/12741234962411590
 
 Cage Happy:
 http://i.imgur.com/eYBlyNq.gif
+
+Cat Hug:
+http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/06/tumblr_npbbyj1Ga61tgetb4o1_400.gif
