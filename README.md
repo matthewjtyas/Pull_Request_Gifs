@@ -243,3 +243,8 @@ http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/06/tumblr_n7qt5lxl1C1tex68j
 
 Hacker Man:
 http://oyster.ignimgs.com/wordpress/stg.ign.com/2015/06/tumblr_np4fa6pJe81rli7h8o1_500.gif
+
+Critters in Space <3
+http://i.kinja-img.com/gawker-media/image/upload/s--y1hcjyMB--/c_fit,fl_progressive,q_80,w_636/1291527062968583316.gif
+
+https://vimeo.com/126645046
