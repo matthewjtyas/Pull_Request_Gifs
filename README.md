@@ -249,4 +249,5 @@ http://i.kinja-img.com/gawker-media/image/upload/s--y1hcjyMB--/c_fit,fl_progress
 
 https://vimeo.com/126645046
 
+For The Ladies:
 http://i.kinja-img.com/gawker-media/image/upload/s--FhydtsuQ--/1292500205196229156.gif
