@@ -254,3 +254,6 @@ http://i.kinja-img.com/gawker-media/image/upload/s--FhydtsuQ--/12925002051962291
 
 Matrix Bullets:
 http://i.kinja-img.com/gawker-media/image/upload/s--pKJV5kGp--/c_fit,fl_progressive,q_80,w_636/1294385494524101157.gif
+
+Nintendo Muppets:
+http://i.imgur.com/PvrEC0e.gif
