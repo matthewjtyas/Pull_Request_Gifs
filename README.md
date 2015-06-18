@@ -257,3 +257,6 @@ http://i.kinja-img.com/gawker-media/image/upload/s--pKJV5kGp--/c_fit,fl_progress
 
 Nintendo Muppets:
 http://i.imgur.com/PvrEC0e.gif
+
+Truck Stop:
+http://i.kinja-img.com/gawker-media/image/upload/s--5KTadCZl--/c_fit,fl_progressive,q_80,w_636/1302644695647272619.gif
