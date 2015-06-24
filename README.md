@@ -260,3 +260,6 @@ http://i.imgur.com/PvrEC0e.gif
 
 Truck Stop:
 http://i.kinja-img.com/gawker-media/image/upload/s--5KTadCZl--/c_fit,fl_progressive,q_80,w_636/1302644695647272619.gif
+
+Bye-Bye:
+http://media1.giphy.com/media/12xvz9NssSkaS4/giphy.gif
